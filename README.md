@@ -1,0 +1,1 @@
+# masahiro-takemori-educure-app
